@@ -1,1 +1,1 @@
-https://yuika.ryosan1210.net/
+https://yuika.ayutsuki.net/
